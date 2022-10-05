@@ -6,4 +6,6 @@ I went for lunch and walked the dog.
 
 I woke up at 7:30am and prepared for class.
 
-After class I'm now working on the assignment in lab time. 
+After class I'm now working on the assignment in lab time.
+
+I will be working with my team members for our final project.
